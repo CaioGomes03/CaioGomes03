@@ -1,0 +1,9 @@
+- 👋 ola, meu nome é Caio Gomes 
+- 😒 insta: Gomes_372
+- 😎 sou estudande do Leonardo Vilas Boas 
+- 🙄 Estou aprendendo usar ultilizar o alura
+- 😍 gosto muito  de conversar com a minha melhor amiga
+- 🙄 nao gosto de perder no CS hanqueado 
+- 🤪 Meu sonho e der uma familia e der uma BMW M3
+- 🤨 contato: Gomes_372 insta
+- 🙄 fÁ de pessoas que gosta de carro e VAPO.
